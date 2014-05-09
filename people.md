@@ -17,3 +17,4 @@ E Roon Kang lives and works in New York, where he operates [Math Practice](http:
 ---
 
 ###Nick Irvin, Research Assistant
+Nick Irvin is a writer, critic, and curator based in Brooklyn by way of Portland, Oregon. His writing has appeared in [Art in America Magazine](http://www.artinamericamagazine.com/), and is forthcoming through arrangements that are not yet matters of public record. He has worked for [Triple Canopy](http://www.canopycanopycanopy.com), [David Zwirner](http://www.davidzwirner.com), and the [Ad Reinhart Foundation](http://adreinhardt.org), and is currently Research Assistant at [Public Art Fund](http://http://www.publicartfund.org/). He went to Reed College, where he majored in art history and thought a lot about diagrams.
